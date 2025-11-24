@@ -32,6 +32,3 @@ Samskipti:
 
 Gefa feedback:
 1.Hreinsklini og og fá allt skýrt.
-
-
-
