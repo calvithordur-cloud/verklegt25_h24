@@ -17,5 +17,21 @@ Gefa feedback:
 1. Seiga við mig strax rólega.
 
 
+<h3> Þórður Miguel </h3>
+Work Condition:
+1. Vill vinna á stað helst
+2. Get unnið heima
+3. Ef ég er með heyrnatól í mér má pikka í mig
+
+Tími:
+1. Hvaða tími sem er virkar, frekar til í að mæta nær hádeigi samt
+
+Samskipti:
+1. Lýkar við að mæta á stað til að vinna með restinni af hópnum
+2. Ef eitthver klikkun á sér stað útaf mér, vill helst að sé sagt við mig strax
+
+Gefa feedback:
+1.Hreinsklini og og fá allt skýrt.
+
 
 
